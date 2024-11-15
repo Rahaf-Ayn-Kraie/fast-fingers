@@ -39,7 +39,7 @@ You can check out the live demo of the **Fast Fingers Game** website here:
 
 ## Let's Connect! 🌐
 
-- 📫 You can reach out to me at [rahaf@gmail.com](mailto:rahaf@gmail.com).
+- 📫 You can reach out to me at [rahaf.aynkraie3@gmail.com](mailto:rahaf.aynkraie3@gmail.com).
 ## soical media 
 
 
